@@ -2,6 +2,6 @@
 
 # 👋 Welcome to CloudLink Omega.
 
-CloudLink Omega, or CLΩ, is an upcoming online multiplayer network for Scratch, powered by CloudLink 5.
+CloudLink Omega, or CLΩ, is an upcoming online multiplayer network for Scratch, powered by CloudLink 5. [Join our Discord!](https://discord.gg/BZ7TWeMF75)
 
-Coming soon...
+### 🚧 Coming soon...
