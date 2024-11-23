@@ -1,5 +1,5 @@
-![Amazing Altocumulus](https://github.com/user-attachments/assets/f2b54db0-5d9c-45e1-97a5-8e9250b729d5)
+![Amazing Altocumulus, Delayed](https://github.com/user-attachments/assets/bee3ced1-d4b5-4473-9269-af4cc5df0d7e)
 
-# 🚀 Launching November 30, 2024
+# 😢 Delayed. 🚀 See you on December 21, 2024!
 
 ### [Join our Discord!](https://discord.gg/BZ7TWeMF75)
